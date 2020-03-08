@@ -1,0 +1,3 @@
+<h4>Sejarah Singkat Sekolah SMA Perguruan Budaya</h4>
+							<p>SMA Budaya didirikan pada tahun 1993 dibawah naungan yayasan Pendidikan Budidaya, Perguruan Budaya didirikan oleh pemuda yang tergabung dalam tentara pelajar yang salah satu diantaranya ialah Bapak Alm. Sayuti Thalib. Pada tahun 1960 beliau mengajak adiknya yakni Bapak Alm. Drs. H. Amirudin Thalib untuk memimpin Yayasan Pendidikan Budidaya. Semula SMA Budaya beralamat di Jalan Salemba Tengah Jakarta Pusat, tetapi sejak tahun 1984 Budaya berlokasi di Jl. Dermaga Baru Klender, Duren Sawit Jakarta Timur hingga kini.
+							Dan sepeninggal Alm. Drs. H. Amirudin Thalib tahun 1998 Yayasan Pengembang Budidaya di pimpin oleh putra sulungnya Bapak. Fadli Amir, SE hingga sekarang</p>
